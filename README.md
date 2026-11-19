@@ -3,8 +3,20 @@
 
 
 <p align= "middle">
-ᣟ݂ ♡̶ 𓏽⑅  ო𝛐𝗴⍺𝗋ıυֹׅ 𝛐ղ [𝗍υֹׅოb͜ℓ𝗋](https://www.tumblr.com/mogariu/826522714900758528/mugm-thempack-reupload-example) ♡
+ᣟ݂ ♡̶ 𓏽⑅  ო𝛐𝗴⍺𝗋ıυֹׅ 𝛐ղ 𝗍υֹׅოb͜ℓ𝗋 ♡
  　　　　　　   ⑅  ۫݁ ݂𓈒⍺𝗋𝗍 b͜ყ ƒυֹׅ𝗰ჩυֹׅυֹׅ_  ᣟ݂ ⎯ᣟ݂ ❔
+
+ 
+ <details>
+      <summary> 【  ◜◡◝  】 　 ⋯  　ℓıղ𝗸ꜱ : </summary>
+
+[ℓ⍺ყ𝛐υֹׅ𝗍](https://www.tumblr.com/mogariu/826522714900758528/mugm-thempack-reupload-example)
+[⍺𝗋𝗍 𝗰𝗋𝗲ᑯı𝗍ꜱ](https://x.com/fuchuu_)
+
+</details>
+<p align="center">
+
+ <img width="640" height="64" alt="image" src="https://github.com/user-attachments/assets/9985c090-44c2-4659-8be8-72116a471977" />
 
 
 
