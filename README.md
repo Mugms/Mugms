@@ -36,6 +36,7 @@
 [M⍺ıղ ⍺𝗰𝗰𝛐υֹׅղ𝗍](https://github.com/Iiquidsmooth)
 [新b͜𝛐𝛐𝗸](https://reveried.atabook.org/)
 [ꜱ𝗍𝗋⍺ω𝗽⍺𝗴𝗲](https://mapiclings.straw.page/)
+</details>
 
 <img width="1920" alt="image" src="https://github.com/user-attachments/assets/230e750a-07a6-4f9a-a5e2-2aa2052c34fc" />
 <img width="1920" alt="image" src="https://github.com/user-attachments/assets/39270575-0de7-43e4-a1c6-bdac60a395d0" />
